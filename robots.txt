@@ -1,1 +1,2 @@
 https://bookists.tk/sitemap.xml
+https://bookists.tk/map.xml
