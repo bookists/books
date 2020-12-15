@@ -1,3 +1,3 @@
-Do not mess with it.
-you
-I am trying hardly 
+This is my website and please do not copy this. I have made it with very hard work.
+So please do not copy it
+
